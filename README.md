@@ -134,7 +134,7 @@ If you need someone who ships real work, takes feedback seriously, and improves 
 
 | 📧 Email | 📱 Phone | 🌍 Location |
 |:--------:|:--------:|:-----------:|
-| [your.email@gmail.com](mailto:your.email@gmail.com) | +20 XXX XXX XXXX | Egypt · Remote-friendly |
+| [your.email@gmail.com](mailto:your.email@gmail.com) | +201123491489 | Egypt · Remote-friendly |
 
 </div>
 
